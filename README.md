@@ -1,2 +1,2 @@
 # hello-world
-oo boi
+hey im robyn, i love art and writing and the color red.
